@@ -1,1 +1,0 @@
-# pw_pratikum-3
